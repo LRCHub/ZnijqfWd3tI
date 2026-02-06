@@ -1,0 +1,82 @@
+# YUGUREMI – Just Panic Just Party
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+誉れの名に溺れ
+過去語る居酒屋だね
+ナポレオンも大失敗
+喝采の裏側みたい
+気をつけなきゃ鬼が来るぞ
+羅生門でビッビックリ
+制御センサー突発警報
+かませ爆音で
+ユラセ！ユラセ！
+フーフーフリーキー
+感情メーター心拍上昇
+フロア最高潮
+コワセ！コワセ！
+グーグーグリービィー
+ハイカラさんが道を歩いてく
+その道を坊主が歩いてる
+省電力のBrain 評論家はまたもやリプレイ
+もう理解不能
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+Panic! it's a Panic!
+慌てないで
+Just Panic! Just Panic!
+笑っちゃって
+いっそParty! そうParty!
+踊っちゃえば
+Crazy Party! it's a Party!
+ね？いい感じ
+聞き覚えあるなこの音は
+チェンソー振り回すあの男
+愛を語って嘘を飾って
+君の悪魔 どんな名前なの？
+正当化の山を築いて
+へのへのもへじで刃を向け
+平等は皆冷遇だと知らないの？
+かき鳴らせ 存在の証明
+テレキャスターで一発殴って
+ファンキーにブレーキを外せ
+ありのまま
+もう無理×12 ライオット
+マキシマイズ超えて
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+ダーウィン様また更新して
+進化論に名前書き足して
+更新されないエラーは
+ほっといてこの音が合図だ
+全て脱ぎ捨てて
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+It's a Panic!
+そうPanic!
+みんなでPanic!
+Crazy Party!
+Panic! it's a Panic!
+慌てないで
+Just Panic! Just Panic!
+笑っちゃって
+いっそParty! そうParty!
+踊っちゃえば
+Crazy Party! it's a Party!
+ね？いい感じ
+```
